@@ -1,1 +1,0 @@
-# oznurkg.github.io
